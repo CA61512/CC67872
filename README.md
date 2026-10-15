@@ -1,2 +1,2 @@
+ 음... 감자튀김, 그래 감자튀김... 음...
 <img width="294" height="288" alt="9AF18A1C-0F63-40D8-BE33-3975B463611B" src="https://github.com/user-attachments/assets/9ea03ff9-0d99-492e-9296-c0a36d93e65a" />
-
